@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vanya70228
+- 👋 Hi, I’m @vanya382
 - 👀 I’m interested in Music. books and of course crypto
 - 🌱 I’m currently learning new languages and crypto industry
 - 💞️ I’m looking to collaborate on creating some new things
